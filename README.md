@@ -1,1 +1,1 @@
-# ![revature](media/revatureAssignForce2Small.jpg)
+# ![revature](media/revatureAssignForceSmall.jpg)
