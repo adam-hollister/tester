@@ -1,1 +1,1 @@
-# ![pageres](media/revatureAssignForce2.jpg)
+# ![revature](media/revatureAssignForce2Small.jpg)
